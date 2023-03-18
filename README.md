@@ -1,4 +1,4 @@
-### Hi there :simple_smile::simple_smile:
+### Hi there :simple_smile:
 
 ## LOADING... 
 
