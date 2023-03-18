@@ -1,6 +1,6 @@
-### Hi there :smiley:
+### Hi there :smile: :smile:
 
-## LOADING... 
+# LOADING... 
 
 - I’m currently learning
 - First steps
